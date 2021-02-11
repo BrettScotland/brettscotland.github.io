@@ -1,2 +1,0 @@
-# brettscotland.github.io
-Webpage
